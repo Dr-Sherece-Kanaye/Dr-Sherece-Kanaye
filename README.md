@@ -87,5 +87,4 @@ Additional academic background includes prior studies in Biological Sciences and
 📞 071 508 1212  
 ✉️ Sadia.Murray@westerncape.gov.za  
 
-Just tell me the style you want.
 
