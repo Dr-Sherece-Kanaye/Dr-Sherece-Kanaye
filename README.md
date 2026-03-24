@@ -3,7 +3,7 @@
 
 
 ## **Professional Summary**
-Medical Officer with internship and community service completed in high‑volume public sector facilities, including Groote Schuur Hospital and Wingfield Military Sickbay. Experienced in primary care, emergency medicine, and inpatient management, with a growing interest in Family Medicine and Mental Health. Proven ability to manage undifferentiated patients, perform under pressure, and collaborate effectively within multidisciplinary teams. Dedicated to delivering equitable, patient‑centred care in resource‑limited settings.
+Medical Officer with internship and community service completed in high‑volume public sector facilities, including Groote Schuur Hospital and Wingfield Military Sickbay. Experienced in primary health care, emergency medicine and inpatient management, with a growing interest in Family Medicine and Mental Health. Proven ability to manage undifferentiated patients, perform under pressure, and collaborate effectively within multidisciplinary teams. Dedicated to delivering equitable, patient‑centred care in resource‑limited settings.
 
 ---
 
