@@ -1,4 +1,4 @@
-## Hi there, Im Dr Sherece Kanaye, MBChB**  
+## Hi there, Im Dr Sherece Kanaye, MBChB
 **Medical Officer | Primary Care | Emergency Medicine | Family & Mental Health Interest**
 
 
